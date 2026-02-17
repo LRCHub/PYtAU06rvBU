@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "ネヴァー・セッド・イット",
+  "base_artist": "Papa Roach",
+  "createdAt": "2026-02-17T13:35:09.879937Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Never Said It",
+      "artist": "Papa Roach",
+      "has_synced": false,
+      "path": "select/pl_01_Never_Said_It_Papa_Roach.txt"
+    }
+  ]
+}
