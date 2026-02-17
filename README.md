@@ -1,0 +1,78 @@
+# Papa Roach – ネヴァー・セッド・イット
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Wish I would never have said it
+But if only admit it
+And I will tell you the truth
+cause that's all I know - so
+pathetic
+So you can't ignore how he
+bought you
+He sat you down and he taught
+you
+And you'll obey every rule that
+he made
+Cause he bought you, now he owns
+you
+So don't go away, don't go away
+I got something to say about the
+dark side of me
+Dead side of me, light side of
+me
+Dark side of me, dead side of me
+I lied to you and you caught me
+I shoulda learned what you
+taught me
+And the truth cuts just like a
+knife,
+When you cut me
+And I'll do all that I told you
+I love you and I would hold you
+But those are just things that I
+said in my head
+But she told you, should have
+told you
+I said don't go away, don't go
+away
+Got something to say about the
+dark side of me
+Dead side of me, light side of
+me
+Dark side of me, dead side of me
+Just let me be, what I want to
+be
+I said I haven't told you
+anything
+I hold it all inside in vain
+I think of you and I think of
+pain
+Now I've told you everything
+I said don't go away, don't go
+away
+I got something to say about the
+dark side of me
+I said I haven't told you
+anything
+Dead side of me
+I hold it all inside in vain
+Light side of me
+I think of you and I think of
+pain
+Dark side of me
+Now I've told you everything
+Dead side of me
+I said I haven't told you
+anything
+I hold it all inside in vain
+I think of you and I think of
+pain
+I never tell you anything
+I said I haven't told you
+anything
+I hold it all inside in vain
+I think of you and I think of
+pain
+Never said it, so forget it.
+```
